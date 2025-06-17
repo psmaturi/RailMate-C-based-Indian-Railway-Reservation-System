@@ -63,9 +63,9 @@ Perfect for:
 
 ## 👨‍💻 Author
 
-**[Your Name]**  
-*SRM University*  
-Email: [your-email@example.com]
+Maturi Pardha Saradhi   
+*SRM University AP *  
+
 
 ---
 
